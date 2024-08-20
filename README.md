@@ -1,4 +1,4 @@
-## Hi there 👋
+## Welcome, I don't know what to put here yet. I swear it will be interesting...... 👋
 
 <!--
 **Weston-Lane/Weston-Lane** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
